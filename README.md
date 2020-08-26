@@ -1,2 +1,0 @@
-# thanhphuc
-ádasdasd
